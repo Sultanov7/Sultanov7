@@ -2,6 +2,4 @@
 
 https://xn--h1adlhdnlo2c.xn--p1ai/lessons/ai-in-startups/certificate?session_id=dbf704d6-62fe-4e31-aea9-281e713f12a8 
 
-
-certificate (1)_221027_101549.docx • 482 КБ
-https://vk.com/doc654079427_648423230
+https://docs.google.com/document/d/1Wqc-DTkJqNHQmz0rRH3nYHRm8EZHBU24/edit?usp=sharing&ouid=110861299636962592311&rtpof=true&sd=true

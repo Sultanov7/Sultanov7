@@ -16,3 +16,6 @@ https://docs.google.com/document/d/1TIK0kTK-6n3WQj28N-XJRnO_bmXMKCEf/edit?usp=dr
 q3we
 
 https://docs.google.com/document/d/1WxuAX9148m_q9SGaaTVUO27DacghzTBA/edit?usp=drivesdk&ouid=111360010244562622593&rtpof=true&sd=true PyCharm
+
+
+https://docs.google.com/document/d/1XxF1yLuFDJhWk9ZhScGiPh4W12mEP7q6uV1aB0tdE1g/edit?usp=drivesdk МДК

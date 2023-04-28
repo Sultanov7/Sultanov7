@@ -23,3 +23,5 @@ https://docs.google.com/document/d/1XxF1yLuFDJhWk9ZhScGiPh4W12mEP7q6uV1aB0tdE1g/
 https://docs.google.com/document/d/1YN58cXj1cp3_v_w9SmZzPjxZkYgrx5I4/edit?usp=drivesdk&ouid=111360010244562622593&rtpof=true&sd=true задание по питону
 
 https://docs.google.com/document/d/1Yd24M-K-yL3CDPmoaS6ixUiQYJ3QbEXX/edit?usp=drivesdk&ouid=111360010244562622593&rtpof=true&sd=true   Задание по C#
+
+https://www.study.ru/article/sovety/intensivnye-kursy-angliyskogo-yazyka-v-moskve интенсив

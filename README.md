@@ -24,4 +24,6 @@ https://docs.google.com/document/d/1YN58cXj1cp3_v_w9SmZzPjxZkYgrx5I4/edit?usp=dr
 
 https://docs.google.com/document/d/1Yd24M-K-yL3CDPmoaS6ixUiQYJ3QbEXX/edit?usp=drivesdk&ouid=111360010244562622593&rtpof=true&sd=true   Задание по C#
 
-https://www.study.ru/article/sovety/intensivnye-kursy-angliyskogo-yazyka-v-moskve интенсив
+История Курс «История» представляет собой систематическое введение в проблематику исторической науки. В рамках курса приоритетное внимание уделено таким сюжетам, как специфика исторической науки и возможности научного познания прошлого, содержание основных этапов всемирной и российской истории, факторы и последствия исторических явлений; анализируются ставшие классическими и появившиеся относительно недавно исторические концепции. 
+
+https://stepik.org/course/История-21476/    интенсив

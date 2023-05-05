@@ -29,4 +29,4 @@ https://stepik.org/course/Английский-для-юристов-Искус�
 https://docs.google.com/document/d/1eYxGH2g6B7CZomE6cqpeA8e-E5NYhR3B/edit?usp=drivesdk&ouid=111360010244562622593&rtpof=true&sd=true
 
 
-https://docs.google.com/document/d/1eYxGH2g6B7CZomE6cqpeA8e-E5NYhR3B/edit?usp=drivesdk&ouid=111360010244562622593&rtpof=true&sd=true 
+https://docs.google.com/document/d/1eYxGH2g6B7CZomE6cqpeA8e-E5NYhR3B/edit?usp=drivesdk&ouid=111360010244562622593&rtpof=true&sd=true курс по английскому

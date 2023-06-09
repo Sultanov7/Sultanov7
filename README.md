@@ -30,3 +30,6 @@ https://docs.google.com/document/d/1eYxGH2g6B7CZomE6cqpeA8e-E5NYhR3B/edit?usp=dr
 
 
 https://docs.google.com/document/d/1eYxGH2g6B7CZomE6cqpeA8e-E5NYhR3B/edit?usp=drivesdk&ouid=111360010244562622593&rtpof=true&sd=true курс по английскому
+
+
+https://docs.google.com/document/d/1iOnSYwOhjv0DRfqyOCB6fnBUnmc8yb9J/edit?usp=drivesdk&ouid=111360010244562622593&rtpof=true&sd=true интенсивноСQL
